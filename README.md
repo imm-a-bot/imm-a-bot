@@ -10,3 +10,5 @@ msg my discord or if you are funny send a msg through this webhook (bonus points
 
 ## my bucket list
 - [x] get someone to recite the bible in japanese
+- [ ] become a richy man
+- [ ] drop a band on blahaj
