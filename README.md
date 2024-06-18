@@ -4,7 +4,7 @@ yap to me please i crave attention
 
 ## contact me
 msg my discord
-- Discord (`imm_a_bot`)
+- Discord (`imm.zip`)
 
 ## my bucket list
 - [x] get someone to recite the bible in japanese
